@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Crypto-SmurFxXx
 - 👀 I’m interested in Crypto, gaming, gamblibg
-- 🌱 I’m currently learning unminable
+- 🌱 I’m currently advancing my skills in technology 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 『Smurﾁ』岚#7710 on discord 
 
